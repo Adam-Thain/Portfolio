@@ -4,9 +4,7 @@ Hello! My name is Adam, and I'm a aspiring game programmer. I'm a UK citizen ori
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 ADAM THAIN
-
 Game Programmer
-
 github.com/Adam-Thain/Portfolio | 07722 484546 | Adam.r.thain@gmail.com
 
 Statement
