@@ -24,9 +24,13 @@ OCR Double Award ICT Level 3 - 2012 - Merit
 BTEC First Diploma Public Services - 2011 - Distiction *
 
 GCSE English - 2010 - C
+
 GCSE Maths - 2010 - C
+
 GCSE Double Science - 2010 - CC
+
 GCSE Geography - 2010 - C
+
 GCSE Electronics - 2010 - C
 
 Interests 
