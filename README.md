@@ -1,6 +1,6 @@
 Adam Thain - Online Portfolio
 
-Hello! My name is Adam, and I'm a aspiring game programmer. I'm a UK citizen originally from Norway, I'm a graduate of computer games technology with a 2:1 Degree from the open university obtained from the Somerset College of Arts and Technology, Throughout the years a have gathered a huge variaty of experiences and I wish only to share my wealth of experiences through the art form of Video Games.
+Hello! My name is Adam, and I'm a aspiring game programmer. I'm a UK citizen originally from Norway, I'm a graduate of computer games technology with a 2:1 Degree from the open university obtained from the Somerset College of Arts and Technology, Throughout the years I have gathered a huge variaty of experiences and I wish only to share my wealth of experiences through the art form of Video Games.
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 ADAM THAIN
