@@ -13,7 +13,7 @@ Statement
 
 I am a motivated, responsible, charismatic game programmer seeking a position where I can stretch my current abilities and learn new skills.
 
-Though relatively new to the gaming industry, my wealth of life experiences through travel, a career in software development, qaulity assurance , and various work experiences provide a unique background that is an asset to any creative endeavor. In addition to this colourful background, I am also highly focused on game programming and development, pursuing a career in one of information technologies fastest growing and innovating industries
+Though relatively new to the gaming industry, my wealth of life experiences through travel, a career in software development, qaulity assurance , and various work experiences provide a unique background that is an asset to any creative endeavor. In addition to this colourful background, I am also highly focused on game programming and development, pursuing a career in one of information technologies fastest growing and innovating industries.
 
 I have shown myself to be hard working, imaginative, collaborative, and eager to learn throughout my university studies and work experiences. In short, I am an individual with a diverse skill set and strong technical background who has got a genuine passion for computer games.
 
