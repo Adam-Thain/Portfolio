@@ -43,4 +43,4 @@ Music: I produce music using synthesizer an software and perform sets with a DJ 
 
 Sport: I play golf and I do sporting shooting in my spare time. During my time in the Devon Army Cadet Force, I have shot in competition in teams at company and county levels. I am also a qualified marksman.
 
-Travel: Born in Oslo and raised in Norway, the United Kingdom and Califonia, I've traveled all across the world with the USA, South East Asia and Continental Europe being my personal highlights Experiencing different places and cultures is a great way for my to generate new ideas and broaden my horizons.
+Travel: Born in Oslo and raised in Norway, the United Kingdom and Califonia, I've traveled all across the world with the USA, South East Asia and Continental Europe being my personal highlights. Experiencing different places and cultures is a great way for me to generate new ideas and broaden my horizons.
